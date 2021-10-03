@@ -1,2 +1,2 @@
 # hello-world
-I want to learn new skill so I can use to help someone
+I want to learn new skills so I can use to help someone
